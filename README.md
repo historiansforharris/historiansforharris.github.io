@@ -1,4 +1,6 @@
-# AMERICAN HISTORIANS ENDORSE KAMALA HARRIS FOR PRESIDENT
+---
+title: AMERICAN HISTORIANS ENDORSE KAMALA HARRIS FOR PRESIDENT
+---
 
 As American historians, we are deeply alarmed by the impending election. Since 1789, the nation has prospered under a Constitution dedicated to securing the general welfare, under a national government bound by the rule of law in which no one interest or person holds absolute power. In 1860, an elite interest dedicated to human slavery attempted to shatter the Union rather than accede to the constitutional rule of law by accepting the outcome of the election, plunging the nation into Civil War.
 
