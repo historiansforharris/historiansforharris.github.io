@@ -22,7 +22,8 @@ JON MEACHAM
 
 SEAN WILENTZ
 
-*Interested historians are invited to [add their signatures here](https://forms.gle/1BfFBasurdNaj7ne7).*
+### _Interested historians are invited to [add their signatures here](https://forms.gle/1BfFBasurdNaj7ne7)._
+
 ---
 
 Susan Dunn, Williams College
@@ -798,3 +799,27 @@ Amanda Vaill, Independent scholar
 Rev. Dr. Phillip A. Bernhardt-House, Research Group on Manuscript Evidence
 
 Laurence Bergreen, Independent historian
+
+Betsy Ennis, Ennis O’Brien and Columbia University alum
+
+Ann Norton Greene, University of Pennsylvania
+
+Alexis Coe, New America
+
+Larry Lockrige, New York University
+
+Trinidad Gonzales
+
+Marjorie Becker, Professor, History and English, University of Southern California
+
+Neal Gabler
+
+Rebecca A. Hunt, University of Colorado, Denver, Emerita
+
+Geoffrey R. Hunt, Ph.D, Professor of History, Emeritus
+
+John Matteson, John Jay College of Criminal Justice, CUNY
+
+Carl E. Kramer, Ph.D., Indiana University Southeast (Retired) and Kramer Associates, Inc.
+
+Rev. Dr. Nancy Koestet, Retired from Luther Seminary, Augsburg College
