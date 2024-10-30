@@ -376,7 +376,7 @@ Rose Stremlau, Davidson College
 
 Adam Blackler, University of Wyoming
 
-Raymond H. Dominick III, PProfessor Emeritus at The Ohio State University
+Raymond H. Dominick III, Professor Emeritus at The Ohio State University
 
 John Stauffer, Harvard University
 
@@ -657,3 +657,103 @@ Jennifer Ritterhouse, George Mason University
 Judith Steinhoff
 
 Mary C Wilson, University of Massachusetts
+
+Susan Wladaver-Morgan, Pacific Historical Review, Retired
+
+Al Carroll, Northern Virginia Community College
+
+Elizabeth Schmidt, Loyola University Maryland
+
+Norman Markowitz, Department of History, Rutgers University
+
+Jessica Weiss, California State University, East Bay
+
+Mary Ann Irwin, Author, California History (UC Press)
+
+Louisa A. Burnham, Middlebury College
+
+Walter Greason, Macalester College
+
+Karen Sotiropoulos, Cleveland State University
+
+Sarah Maza, Northwestern University
+
+Kristian Blaich, Agnes Scott College
+
+Claudette Tolson
+
+Elisabeth Sommer
+
+David L. Carlton, Vanderbilt University, Emeritus
+
+Douglas Brinkley, Professor of History and Presidential Historian
+
+Sean Munger, Independent
+
+Ruth M Alexander
+
+Mavis Amundson, Retired journalist, history teacher
+
+Adam J. Davis, Denison University
+
+Kenneth Zimmerman, The History Business
+
+David T. Z. Mindich, Temple University
+
+Sandi Cooper, Professor emerita, City U of New York at Staten Island and The Graduate School
+
+Vernon Burton, Clemson University
+
+Kathy Feeley, University of Redlands
+
+Arun Raja Pookote
+
+Rima Lunin Schultz, University of Illinois Chicago
+
+Derek Larson, The College of St. Benedict + St. John's University (MN)
+
+Leslie Singer Lomas
+
+Marjorie J. Spruill, University of South Carolina Emerita
+
+Andrew Larsen, University of Wisconsin Milwaukee
+
+Allyson Hobbs, Stanford University
+
+Steven Volk, Oberlin College
+
+Margot Canaday, Princeton University
+
+Alison Landsberg, George Mason University
+
+Ross Caputi, UMass
+
+Timothy M. Gay, Author of five books on popular history
+
+Kathy Roberts Forde, University of Massachusetts Amherst
+
+Sid Bedingfield, Hubbard School of Journalism and Mass Communications, University of Minnesota, Twin Cities
+
+William V. Hudon, Bloomsburg University of Pennsylvania
+
+Kitty Krupat, City University of New York (CUNY)
+
+Martha A. Sandweiss, Princeton University
+
+Iris Berger, University at Albany - SUNY
+
+Ronald C. White, Historian and Biographer
+
+Emilio Zamora, University of Texas at Austin
+
+Michael Grossberg, Indiana University, Bloomington
+
+Peter Kuznick, American University
+
+James Borchert, Professor Emeritus Cleveland State University
+
+Amy Kesseman, SUNY New Paltz
+
+Patricia Bonomi, Emerita, New York University
+
+Kristopher Burrell
