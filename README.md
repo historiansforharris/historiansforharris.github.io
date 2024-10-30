@@ -823,3 +823,13 @@ John Matteson, John Jay College of Criminal Justice, CUNY
 Carl E. Kramer, Ph.D., Indiana University Southeast (Retired) and Kramer Associates, Inc.
 
 Rev. Dr. Nancy Koestet, Retired from Luther Seminary, Augsburg College
+
+David S. Dunbar, DKDK Project
+
+Henry Breed
+
+Wes Singletary, Ph.D., Lawton Chiles High School
+
+Ken Krimstein, Author/Graphic Biographer
+
+Mary Ann Wynkoop, UMKC retired
