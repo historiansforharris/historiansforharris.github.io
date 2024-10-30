@@ -833,3 +833,5 @@ Wes Singletary, Ph.D., Lawton Chiles High School
 Ken Krimstein, Author/Graphic Biographer
 
 Mary Ann Wynkoop, UMKC retired
+
+Nigel Hamilton, UMass Boston
