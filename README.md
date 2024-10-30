@@ -845,3 +845,9 @@ Gary Krist, Independent Scholar
 Margaret Bendroth, Retired
 
 Hilliary Turner, Rappahannock Community College and Southern New Hampshire University
+
+Conevery Bolton Valencius, Boston College
+
+Marguerite Renner, Glendale College
+
+Margaret Lavinia Anderon, Historian UC-Berkeley Emerita
