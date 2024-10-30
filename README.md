@@ -757,3 +757,43 @@ Amy Kesseman, SUNY New Paltz
 Patricia Bonomi, Emerita, New York University
 
 Kristopher Burrell
+
+Matthew H. Sommer, Stanford University
+
+Darcy Buerkle, Smith College, Department of History
+
+Steve Kantrowitz, UW-Madison
+
+David Johnson, Portland State University, emeritus
+
+Ruth Schwartz Cowan, University of Pennsylvania
+
+Kimberly Jensen, Western Oregon University
+
+Martha Hodes, New York University
+
+Bruce Dorsey, Swarthmore College
+
+Matthew S Luckett, California State University Dominguez Hills
+
+Amy Kittelstrom, Sonoma State University
+
+Linda Leavell, Biographers International Organization
+
+Abigail Santamaria, The Dorothy and Lewis B. Cullman Center for Scholars and Writers at the New York Public Library
+
+Justin Spring, Independent
+
+David A. Kaplan
+
+David Allyn
+
+Victoria Phillips, Wilson Center
+
+Caroline Fraser
+
+Amanda Vaill, Independent scholar
+
+Rev. Dr. Phillip A. Bernhardt-House, Research Group on Manuscript Evidence
+
+Laurence Bergreen, Independent historian
