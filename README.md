@@ -835,3 +835,13 @@ Ken Krimstein, Author/Graphic Biographer
 Mary Ann Wynkoop, UMKC retired
 
 Nigel Hamilton, UMass Boston
+
+William E. Leuchtenburg, William Rand Kenan Prof. Emeritus, UNC Chapel Hill
+
+Marilyn Richardson, Principal, Art + History Consultants
+
+Gary Krist, Independent Scholar
+
+Margaret Bendroth, Retired
+
+Hilliary Turner, Rappahannock Community College and Southern New Hampshire University
