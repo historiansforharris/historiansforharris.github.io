@@ -850,4 +850,8 @@ Conevery Bolton Valencius, Boston College
 
 Marguerite Renner, Glendale College
 
-Margaret Lavinia Anderon, Historian UC-Berkeley Emerita
+Margaret Lavinia Anderson, Historian UC-Berkeley Emerita
+
+Barbara J. Howe
+
+James J. Sheehan, Stanford University
