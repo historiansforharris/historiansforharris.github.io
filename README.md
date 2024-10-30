@@ -4,7 +4,7 @@ Today, Donald Trump, openly hostile to democracy and to American constitutional 
 
 Kamala Harris has dedicated her life to affirming the rule of law and democracy. As a prosecutor and California attorney-general, she pursued justice without fear or favor. As U.S. Senator, she confronted those who would aid and abet the malign use of authority. As Vice President, she has worked to find solutions to urgent problems, domestic and foreign. As a presidential candidate, she has called out her opponent as a disgrace to his oath as president to preserve, protect, and defend the Constitution.
 
-We believe, based on our study of the past, that the nation stands at an unprecedented historical as well as a political crossroads. On the outcome of this election, no less than the election of 1860, hangs the fate of both the spirit and the letter of the Constitution. We appeal to our fellow citizens, whether conservative, independent, or liberal, regardless of party affiliation, to vote for Kamala Harris and Tim Walz. We make this call not as partisans but as historians who believe in the pursuit of a more perfect Union—[and we urge all Americans to join us](https://forms.gle/1BfFBasurdNaj7ne7).
+We believe, based on our study of the past, that the nation stands at an unprecedented historical as well as a political crossroads. On the outcome of this election, no less than the election of 1860, hangs the fate of both the spirit and the letter of the Constitution. We appeal to our fellow citizens, whether conservative, independent, or liberal, regardless of party affiliation, to vote for Kamala Harris and Tim Walz. We make this call not as partisans but as historians who believe in the pursuit of a more perfect Union—and we urge all Americans to join us.
 
 KAI BIRD
 
@@ -22,6 +22,7 @@ JON MEACHAM
 
 SEAN WILENTZ
 
+*Interested historians are invited to [add their signatures here](https://forms.gle/1BfFBasurdNaj7ne7).*
 ---
 
 Susan Dunn, Williams College
