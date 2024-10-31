@@ -855,3 +855,15 @@ Margaret Lavinia Anderson, Historian UC-Berkeley Emerita
 Barbara J. Howe
 
 James J. Sheehan, Stanford University
+
+Samuele F.S. Pardini, Elon University
+
+Brian Goldstein, Swarthmore College
+
+Darren Wood
+
+Joshua Kendall, Biographer
+
+Leonard Ortiz, Baker University, Retired
+
+Lara Freidenfelds, Independent Scholar
