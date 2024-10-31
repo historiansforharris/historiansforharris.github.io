@@ -867,3 +867,27 @@ Joshua Kendall, Biographer
 Leonard Ortiz, Baker University, Retired
 
 Lara Freidenfelds, Independent Scholar
+
+Jay Turner, Wellesley College
+
+Margo Anderson
+
+Charles Lester, Ohio University
+
+Emily Pawley, Dickinson College
+
+David Greenberg, Rutgers University
+
+Emma Hart, University of Pennsylvania
+
+Gerard E Mayers, Independents
+
+Jinny Turman
+
+Barbara Epstein, History of Consciousness Dept. U.C. Santa Cruz
+
+Susan Kullmann, Retired, CA State Polytechnic Univ., Pomona
+
+Theresa McCulla
+
+Antonia Castaneda, Profesor Emérita
