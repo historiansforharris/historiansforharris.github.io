@@ -891,3 +891,105 @@ Susan Kullmann, Retired, CA State Polytechnic Univ., Pomona
 Theresa McCulla
 
 Antonia Castaneda, Profesor Emérita
+
+Christopher J. O'Shea, Indiana University
+
+Julian B Carter, California College of the Arts, San Francisco
+
+Amy E.Davis, Retired
+
+Carol Kino, Author, Scribner Books, Double Click: Twin Photographers in the Golden Era of Magazines
+
+Fred L. Johnson III, Ph.D., Hope College
+
+Dawn A. Godfrey-Skeens, Historian
+
+Bill J. Leonard, Wake Forest University
+
+HP Harris, Educator
+
+R Barton Palmer, Clemson University
+
+Brian Lee, McNeese State University
+
+Paul Lubienecki, Boland Center for the Study of Labor and Religion
+
+Jim Hanna, English department, Georgetown College
+
+Mark Clark, The University of Virginia’s College at Wise
+
+Cathal J. Nolan, Smithsonian
+
+Erik Rau
+
+Albert Earle Gurganus, Professor Emeritus, The Citadel
+
+Miriam Cohen, Vassar College
+
+Vivien Sandlund, Hiram College
+
+Kathleen M. Brown, University of Pennsylvania
+
+Eugene Leach, Trinity College, Hartford
+
+Robbie Mahallati
+
+Anthony S. Parent Jr., Wake Forest University
+
+Alex Roland, Duke University
+
+Jim R. McClellan, Dean Emeritus and Professor of History (Ret.), Northern Virginia Community College ia
+
+Elizabeth Blum, Troy University
+
+Christopher Bilodeau, Dickinson College
+
+Peter Pringle, Journalist, Author
+
+Dennis C. Dickerson, Vanderbilt University, Emeritus
+
+Tim Hacsi, University of Massachusetts - Boston
+
+Maureen Fitzgerald, Emeritus William and Mary
+
+Max Perry Mueller, University of Nebraska-Lincoln
+
+Greta Goff
+
+Matthew H. Bernstein, Emory University
+
+Elizabeth Kelly Gray, Towson University
+
+Joseph Gonzlez, Appalachian State University
+
+William Trollinger, University of Dayton
+
+Gary Giddins
+
+Jennifer L. Morgan, New York University
+
+William Carter, Retired
+
+Janet Grojean, Independent and Democrat
+
+William G Morgan, Oral Roberts University (ret.)
+
+Josh Reid, University of Washington
+
+Fred Anderson, University of Colorado at Boulder (Emeritus)
+
+Cynthia E. Grant, Salem College
+
+Deborah Anna Brown, Riverside City College - History
+
+Marilynn S Johnson, Boston College
+
+Richard B. Trask, Danvers Archival Center, Danvers, Massachusetts
+
+Candice Millard
+
+Babette Crowder, Retired
+
+Jeffrey K. Tulis, Professor Emeritus, The University of Texas at Austin
+
+Jeffrey C. Isaac, Indiana University, Bloomington (for ID purposes only)
