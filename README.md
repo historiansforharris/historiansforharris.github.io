@@ -993,3 +993,41 @@ Babette Crowder, Retired
 Jeffrey K. Tulis, Professor Emeritus, The University of Texas at Austin
 
 Jeffrey C. Isaac, Indiana University, Bloomington (for ID purposes only)
+
+Jeremi Suri, University of Texas at Austin
+
+Christine Skwiot, Professor of Humanities, Maine Maritime Academy
+
+Annabel Irene Maley, Avid lifetime student of history, practicing lawyer, UVA Law 1990
+
+Mary Nolan, Professor of History emerita NYU
+
+William W. Hagen, University of California, Davis
+
+Robert W. Matson, University of Pittsburgh
+
+Carl E. Prince, New York University (Emeritus)
+
+Donna West, Genealogy and Business History CA and MO
+
+Ian Sikdar, The Tatnall School
+
+Paul Lubienecki, Boland Center for the Study of Labor and Religion
+
+Carolyn Powell, Associate Professor, VSCC
+
+Daniel Mandell, Truman State University
+
+Lori Clune, CA State University Fresno
+
+Alan Kraut, American University
+
+Denver Brunsman, George Washington University
+
+Stanislao Pugliese, Hofstra University
+
+David M Luebke, University of Oregon
+
+Steven Louis Brawley, Public Historian
+
+Geoffrey Kirsch, University of Cambridge
