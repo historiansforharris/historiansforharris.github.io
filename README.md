@@ -1031,3 +1031,137 @@ David M Luebke, University of Oregon
 Steven Louis Brawley, Public Historian
 
 Geoffrey Kirsch, University of Cambridge
+
+Renee K Harrison, Howard University, School of Divinity
+
+Stephanie A.T. Jacobe, University of Maryland Global Campus
+
+Margaret E Menninger, Texas State University
+
+Mik Larsen, California State University, Long Beach
+
+Elaine Tyler May, University of Minnesota
+
+Lary May, University of Minnesota
+
+Katrin Paehler, Illinois State University
+
+Brendan Julian
+
+Christi Anderson, California State University, Sacramento
+
+Jeffrey K. Wilson, California State University, Sacramento
+
+Maria Quintana, Sacramento State University
+
+Patrick Ettinger, Sacramento State University
+
+Joshua Andy, Winchester Thurston School
+
+Chloe Burke, Sacramento State
+
+Joseph A. McCartin, Georgetown University
+
+Christopher J Castañeda, CSU, Sacramento
+
+Donna Haverty-Stacke, Hunter College
+
+Matthew Shoup, Democrat
+
+Joan E. Cashin, Ohio State University
+
+Aretha Brown, Social Studies Educator
+
+Deborah Holland, History Librarian
+
+John J Thawley, Educator
+
+Jonathan Karp, Binghamton University, SUNY
+
+Katherine Lettieri, Retired Educator
+
+Elissa Bemporad, Queens College and The Graduate Center, CUNY
+
+Mary Ann Baldari, Delta Kappa Gamma
+
+Claudia Webb, Retired public school teacher, Columbus, OH
+
+Phillip Sozansky, Independent Historian & AP U.S. History Instructor
+
+David J. Kent, Lincoln Group of DC and Lincoln Scholar
+
+Akiko Takenaka, University of Kentucky
+
+Joan C. Browning, Freedom Rider Independent Researcher
+
+Lynn Price Robbins
+
+Laura Tabili, Professor Emerita, University of Arizona
+
+Gordon Harris, Ipswich MA town historian, Ipswich Historical Commission
+
+Shirley Wajda, Museum Curator and Public Historian
+
+Jane Marcellus, Middle Tennessee State University
+
+Jonathan Earle, LSU
+
+Tommy Brown PhD, JD
+
+Johann Neem
+
+Marquett Thinn
+
+Heather Clark, University of Huddersfield
+
+Amber Roessner
+
+Katie Foss, Middle TN State University
+
+Chris Magoc, Mercyhurst University
+
+Kevin, New York University
+
+Jerry Gershenhorn, North Carolina Central University
+
+Julius Wayne Dudley, Professor Emeritus of History, Salem State University, Massachusetts
+
+Alexandra Garrett, Saint Michael's College
+
+Danielle McGuire, Independent Scholar
+
+Matthew Basso, University of Utah
+
+Kim Gallon, Brown University
+
+Graham Hodges, Colgate University
+
+Carole Srole, California State University at Los Angeles
+
+Birte Pfleger, California State University Los Angeles
+
+Bryant Simon, Temple University
+
+Carol Sue Humphrey, Retired
+
+Barry Bienstock, Horace Mann School
+
+Robert A. Geake, Public historian, Author
+
+Johann Neem
+
+Lynette Garrett, Northern Virginia Community College
+
+Kendra A. Kennedy
+
+Kathleen Conti, Florida State University
+
+Luella Hobson-Burris, Democrat
+
+Will Kaufman, University of Central Lancashire (Emeritus)
+
+Daniel Rosenberg, Adelphi University
+
+William Smaldone, Willamette University
+
+Melissa Totten, Independent
